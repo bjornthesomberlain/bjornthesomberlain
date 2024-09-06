@@ -20,7 +20,9 @@ music: david bowie ; iggy pop ; sting ; nazareth ; bon jovi ; joy division ; dea
 
 but lately i got used to listen to the one song for weeks/months (u can see ut in my status) 
 
-hobbies; dolls modeling, art, handmade, electroguitar, cd-disks collecting, ![2514723_5c25d](https://github.com/user-attachments/assets/e83951a2-9636-4897-8f53-bed5a769f2d6)  ![1046355_5d1ac](https://github.com/user-attachments/assets/3f6f0ec0-0b52-4d51-96d6-c91a25e8545b)
+hobbies; dolls modeling, art, handmade, electroguitar, cd-disks collecting
+
+![2514723_5c25d](https://github.com/user-attachments/assets/e83951a2-9636-4897-8f53-bed5a769f2d6)  ![1046355_5d1ac](https://github.com/user-attachments/assets/3f6f0ec0-0b52-4d51-96d6-c91a25e8545b)
 
 
 
