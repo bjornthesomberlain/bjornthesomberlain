@@ -5,7 +5,7 @@
 ![tumblr_2d070e0de8a27f65e31897cfe0ecdeb0_3bdcffb1_1280](https://github.com/user-attachments/assets/49318721-3e61-4548-b1cc-07787425c602)
 
 hi there everyone ! you can call me bjørn / dashie or whatever you want ^_^
-im a 18 yo artist, studying as professional chef ;P
+im a 18 yo artist, studying as professional chief ;P
 
 i almost got healed my mental health so please avoid any trauma/sexual themes when talking to me ! also id be grateful if you wont tell me anything about insects/parasites i still have an ocd 
 
