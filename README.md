@@ -7,6 +7,7 @@
 hi there everyone ! you can call me bjørn / dashie or whatever you want 
 
 im rlly friendly to pppl that share interests w me, so pls dont be afraid          to interact first !!!!! 
+
  ﾟ+*   ![2195259_72245](https://github.com/user-attachments/assets/e0eb95e0-f92f-45fb-aa97-f409f6e64e2a)  *+ﾟ 
 
 
