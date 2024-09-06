@@ -16,7 +16,7 @@ list of my fav things:
 games:
 postal, metal gear, metalocalypse, blood, doom, duke nukem, bayonetta, devil may cry, half-life, portal, dark souls, max payne, httyd, minecraft, mlp, jjba, evangelion, witcher, stalker, call of duty 
 
-![2287857_a08d9](https://github.com/user-attachments/assets/11ddede1-60ef-4751-9aad-179bd5b71394) ![2408237_68c8f](https://github.com/user-attachments/assets/6f326860-adff-4a02-be76-0ba8c51a5f4f)
+![2287857_a08d9](https://github.com/user-attachments/assets/11ddede1-60ef-4751-9aad-179bd5b71394) 
 [kaworu x shinji from evangelion]
 
 
