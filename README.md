@@ -13,6 +13,8 @@ im rlly friendly to pppl that share interests w me, so pls dont be afraid       
 im afk almost all day 
 but 20:00 - 3:00 on my timezone 
 
+follow me if youre shy ;3
+
  ﾟ+*   ![2195259_72245](https://github.com/user-attachments/assets/e0eb95e0-f92f-45fb-aa97-f409f6e64e2a)  *+ﾟ 
 
 
