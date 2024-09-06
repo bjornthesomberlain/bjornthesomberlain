@@ -1,4 +1,4 @@
-![tumblr_0edb1527e556fe65c132e1a58e9a5707_8db1ad05_100](https://github.com/user-attachments/assets/18d1a2cb-4340-48d0-afd6-d186d971eb71)
+!.[tumblr_0edb1527e556fe65c132e1a58e9a5707_8db1ad05_100](https://github.com/user-attachments/assets/18d1a2cb-4340-48d0-afd6-d186d971eb71)
  ![tumblr_7a0f98f945face250e9b1a99698806b6_91f0bde0_100](https://github.com/user-attachments/assets/dc909844-493e-444c-9ffb-42bc27fa7773)
 ![tumblr_72edd9190ea261622a17ddbd6dc67cac_7fe5f783_100](https://github.com/user-attachments/assets/9b10d97f-4f1c-42f2-a9cf-700a18814e5b)
 
@@ -7,8 +7,11 @@
 hi there everyone ! you can call me bjørn / dashie or whatever you want ^_^
 im a 18 yo artist, studying as professional cooker ;P
 
+i almost got healed my mental health so please avoid any trauma themes when talking to me ! also id be grateful if you wont tell me anything about insects/parasites i still have a ocd 
+
 im rlly friendly to pppl that share interests w me, so pls dont be afraid          to interact first !!!!! 
-im afk almost all day but 20:00 - 3:00 on my timezone 
+im afk almost all day 
+but 20:00 - 3:00 on my timezone 
 
  ﾟ+*   ![2195259_72245](https://github.com/user-attachments/assets/e0eb95e0-f92f-45fb-aa97-f409f6e64e2a)  *+ﾟ 
 
@@ -25,10 +28,9 @@ music: david bowie ; iggy pop ; sting ; nazareth ; bon jovi ; joy division ; dea
 
 but lately i got used to listen to the one song for weeks/months (u can see ut in my status) 
 
-hobbies; dolls modeling, art, handmade, electroguitar, cd-disks collecting
+hobbies: modeling, art, handmade, electroguitar, cd-disks collecting, criminal  x incidents chronicles
 
 ![2514723_5c25d](https://github.com/user-attachments/assets/e83951a2-9636-4897-8f53-bed5a769f2d6)  ![1046355_5d1ac](https://github.com/user-attachments/assets/3f6f0ec0-0b52-4d51-96d6-c91a25e8545b)
-
 
 
 randomly: 
