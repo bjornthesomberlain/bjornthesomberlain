@@ -7,7 +7,7 @@
 hi there everyone ! you can call me bjørn / dashie or whatever you want ^_^
 im a 18 yo artist, studying as professional cooker ;P
 
-i almost got healed my mental health so please avoid any trauma themes when talking to me ! also id be grateful if you wont tell me anything about insects/parasites i still have an ocd 
+i almost got healed my mental health so please avoid any trauma/sexual themes when talking to me ! also id be grateful if you wont tell me anything about insects/parasites i still have an ocd 
 
 im rlly friendly to pppl that share interests w me, so pls dont be afraid          to interact first !!!!! 
 im afk almost all day 
