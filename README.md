@@ -6,7 +6,8 @@
 
 hi there everyone ! you can call me bjørn / dashie or whatever you want 
 
-im rlly friendly to pppl that share interests w me, so pls dont be afraid to interact first ![1841570_83e07](https://github.com/user-attachments/assets/11e6f249-addf-49fa-aeaa-dd8a2d3b213e)
+im rlly friendly to pppl that share interests w me, so pls dont be afraid          to interact first 
+![1841570_83e07](https://github.com/user-attachments/assets/11e6f249-addf-49fa-aeaa-dd8a2d3b213e)
 
 
 list of my fav things:
