@@ -4,9 +4,11 @@
 
 ![tumblr_2d070e0de8a27f65e31897cfe0ecdeb0_3bdcffb1_1280](https://github.com/user-attachments/assets/49318721-3e61-4548-b1cc-07787425c602)
 
-hi there everyone ! you can call me bjørn / dashie or whatever you want 
+hi there everyone ! you can call me bjørn / dashie or whatever you want ^_^
+im a 18 yo artist, studying as professional cooker ;P
 
 im rlly friendly to pppl that share interests w me, so pls dont be afraid          to interact first !!!!! 
+im afk almost all day but 20:00 - 3:00 on my timezone 
 
  ﾟ+*   ![2195259_72245](https://github.com/user-attachments/assets/e0eb95e0-f92f-45fb-aa97-f409f6e64e2a)  *+ﾟ 
 
