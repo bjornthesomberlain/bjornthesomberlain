@@ -30,15 +30,15 @@ postal, metal gear, metalocalypse, blood, doom, duke nukem, bayonetta, devil may
 ✧ musix: david bowie ; iggy pop ; sting ; nazareth ; bon jovi ; joy division ; dead kennedys ; misfits ; sex pistols ; motorhead ; type o negative ; black flag ; candlemass ; placebo ; the smiths ; bee gees ; the doors ; queen ; the cure ; aria ; iron maiden ; purgen ; the smashing pumpkins ; nautilius pompilius ; korn ; marilyn manson ; electric light orchestra ; a-ha ; nightwish  ( only with tarja on vocal :/ ) ; within temptation ; dissection ; ancient ; darkthrone ; judas priest ; metalocalypce ost ;  sally face ost + sanitys fall ; portal ost ; asgaroth ; satyricon ; immortal ; catamenia ; vices abyss ; my dying bride ; vanhelga ; morbid ; windir ; belphegor ; archspire ; exodus ; obituary ; dead angel ; nargaroth ; desolate tapes ; burzum ; mütiilation ; fornicatus ; soulaflair ; garden of sadness ; ruined mind ; lifeharm ; black flag ; overkill ; wintersun ; children of bodom ; exodus ; dimmu borgir ; pantera ; sodom ; bathory ; manowar ; hateful tomorrow ; psychonaut 4 ; absu ; 13 winters ; plenka ; hypnosia ; untold grief ; silencer ; murderdolls ; venom ; horror of 59 ; blitzkid ; king and the jester ; frnkiero and the celebration ; neurotic outsiders ; molchat doma ; the glue ; rings of saturn ;
  
 
-but lately i got used to listen to the one song for weeks/months (u can see ut in my status) 
+but lately i got used to listen to the one song for weeks/months (u can see it in my status) 
 
-✧ hobbies: modeling, art, handmade, electroguitar, cd-disks collecting, criminal  x incidents chronicles
+✧ hobbies: modeling, art, handmade, electroguitar, cd-disks collecting, criminal  x incidents chronicles, dosies
 
 ![2514723_5c25d](https://github.com/user-attachments/assets/e83951a2-9636-4897-8f53-bed5a769f2d6)  ![1046355_5d1ac](https://github.com/user-attachments/assets/3f6f0ec0-0b52-4d51-96d6-c91a25e8545b)
 
 
 ✧ randomly: 
-dogs, crunchy food, NECTARINES,cold winter, swimming, gren tea, SORTING X ANALYSING, SQUARE FORMS, stuffies
+dogs, crunchy food, NECTARINES, cold winter, swimming, gren tea, SORTING X ANALYSING, SQUARE FORMS, stuffies, rain 
 
 ✧ sign my sp! [click here](https://bjornlarsen.straw.page) 
 
