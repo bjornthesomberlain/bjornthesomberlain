@@ -32,7 +32,7 @@ postal, metal gear, metalocalypse, blood, doom, duke nukem, bayonetta, devil may
 
 but lately i got used to listen to the one song for weeks/months (u can see it in my status) 
 
-✧ hobbies: modeling, art, handmade, electroguitar, cd-disks collecting, criminal  x incidents chronicles, dosies
+✧ hobbies: modeling, art, handmade, electroguitar, cd-disks collecting, criminal  x incidents chronicles, dossiers
 
 ![2514723_5c25d](https://github.com/user-attachments/assets/e83951a2-9636-4897-8f53-bed5a769f2d6)  ![1046355_5d1ac](https://github.com/user-attachments/assets/3f6f0ec0-0b52-4d51-96d6-c91a25e8545b)
 
