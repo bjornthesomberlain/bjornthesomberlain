@@ -40,6 +40,8 @@ but lately i got used to listen to the one song for weeks/months (u can see it i
 ✧ randomly: 
 dogs, crunchy food, NECTARINES, cold winter, swimming, gren tea, SORTING X ANALYSING, SQUARE FORMS, stuffies, rain 
 
+✧ follow my ponytown cookie pookie – .[click here].(http://github.com/justcallmedoctoreuthanasia)
+
 ✧ sign my sp! [click here](https://bjornlarsen.straw.page) 
 
 ![2660726_66599](https://github.com/user-attachments/assets/1e1fa973-8b4b-4287-a600-4574ac9364d2)
