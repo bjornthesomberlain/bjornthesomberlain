@@ -38,7 +38,7 @@ but lately i got used to listen to the one song for weeks/months (u can see it i
 
 
 ✧ randomly: 
-dogs, bcrunchy food, NECTARINES, cold winter, swimming, books, gren tea, SORTING X ANALYSING, SQUARE FORMS, stuffies, rain, science fiction
+dogs, crunchy food, NECTARINES, cold winter, swimming, books, gren tea, SORTING X ANALYSING, SQUARE FORMS, stuffies, rain, science fiction
 
 ✧ sign my sp! [click here](https://bjornlarsen.straw.page) 
 
