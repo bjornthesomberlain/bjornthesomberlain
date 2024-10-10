@@ -41,7 +41,7 @@ but lately i got used to listen to the one song for weeks/months (u can see it i
 dogs, crunchy food, NECTARINES, cold winter, swimming, books, gren tea, SORTING X ANALYSING, SQUARE FORMS, stuffies, rain, science fiction
 
 ✧ follow my pookies!!!! 1!! 1! 
- .[kittycat](https://github.com/FEL1NES) 
+ [kittycat ᓚᘏᗢ](https://github.com/FEL1NES) <3
  
 ✧ sign my sp! [click here](https://bjornlarsen.straw.page) 
 
