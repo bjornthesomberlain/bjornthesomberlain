@@ -40,9 +40,6 @@ but lately i got used to listen to the one song for weeks/months (u can see it i
 ✧ randomly: 
 dogs, crunchy food, NECTARINES, cold winter, swimming, books, gren tea, SORTING X ANALYSING, SQUARE FORMS, stuffies, rain, science fiction, psychology
 
-✧ follow my pookies!!!! 1!! 1! 
- [kittycat ᓚᘏᗢ](https://github.com/FEL1NES) <3
- 
 ✧ sign my sp! [click here](https://bjornlarsen.straw.page) 
 
 ![2660726_66599](https://github.com/user-attachments/assets/1e1fa973-8b4b-4287-a600-4574ac9364d2)
