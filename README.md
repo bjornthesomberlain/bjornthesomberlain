@@ -11,10 +11,10 @@
 
 ✧ im rlly sweet & friendly to pppl that share interests w me, so pls dont be afraid          to interact first !!!!! 
 
-✧ im afk almost all day 
-but 20:00 - 3:00 on my timezone 
+✧ im online almost all day 
+but 3 am - 12 pm on my timezone 
 
-follow me if youre shy ;3
+follow me if youre too shy for interactions ;3
 
  ﾟ+*   ![2195259_72245](https://github.com/user-attachments/assets/e0eb95e0-f92f-45fb-aa97-f409f6e64e2a)  *+ﾟ 
 
