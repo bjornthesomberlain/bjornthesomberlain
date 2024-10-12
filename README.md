@@ -32,13 +32,17 @@ postal, metal gear, metalocalypse, blood, doom, duke nukem, bayonetta, devil may
 
 but lately i got used to listen to the one song for weeks/months (u can see it in my status) 
 
-✧ hobbies: reading, modeling, art, handmade, electroguitar, cd-disks collecting, criminal  x incidents chronicles, dossiers, meditation, volunteering
+✧ hobbies: reading, modeling, art, handmade, electroguitar, cd-disks collecting, criminal  x incidents chronicles, dossiers, meditation, volunteering, gyming
 
 ![2514723_5c25d](https://github.com/user-attachments/assets/e83951a2-9636-4897-8f53-bed5a769f2d6)  ![1046355_5d1ac](https://github.com/user-attachments/assets/3f6f0ec0-0b52-4d51-96d6-c91a25e8545b)
 
 
 ✧ randomly: 
 dogs, crunchy food, NECTARINES, cold winter, swimming, books, gren tea, SORTING X ANALYSING, SQUARE FORMS, stuffies, rain, science fiction, psychology
+
+✧ add me on steam! [click here](https://steamcommunity.com/profiles/76561199443770449/) 
+
+✧ follow my photography channel on telegram! [click here](https://t.me/uhtibjorn) 
 
 ✧ sign my sp! [click here](https://bjornlarsen.straw.page) 
 
