@@ -42,7 +42,6 @@ dogs, crunchy food, NECTARINES, cold winter, swimming, books, gren tea, SORTING 
 
 ✧ add me on steam! [click here](https://steamcommunity.com/profiles/76561199443770449/) 
 
-✧ follow my photography channel on telegram! [click here](https://t.me/uhtibjorn) 
 
 ✧ sign my sp! [click here](https://bjornlarsen.straw.page) 
 
