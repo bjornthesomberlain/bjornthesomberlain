@@ -6,18 +6,18 @@
 
 !!! NOTE OF OCTOBER22. be aware of that currently im being in suicidal state. public chat off. i freely hide anybody who annoys me. dniu-closefriends.
 
- ✧   hi there everyone ! you can call  me bjørn / dashie or whatever you want ^_^
+ ✧    you can call  me bjørn / dashie or whatever you want 
  
-✧ im a 18 yo artist, studying as professional chief n catering boss ;P
+✧ im a 18 yo artist, studying as professional chief n catering boss 
 
 ✧ i almost got healed my mental health so please avoid any trauma/sexual themes when talking to me ! also id be grateful if you wont tell me anything about insects/parasites i still have an ocd 
 
-✧ im rlly sweet & friendly to pppl that share interests w me, so pls dont be afraid          to interact first !!!!! 
+✧ im rlly sweet & friendly to pppl that share interests w me, so pls dont be afraid          to interact first 
 
 ✧ im online almost all day 
 but 3 am - 12 pm on my timezone 
 
-follow me if youre too shy for interactions ;3
+follow me if youre too shy for interactions
 
  ﾟ+*   ![2195259_72245](https://github.com/user-attachments/assets/e0eb95e0-f92f-45fb-aa97-f409f6e64e2a)  *+ﾟ 
 
@@ -41,7 +41,7 @@ but lately i got used to listen to the one song for weeks/months (u can see it i
 
 
 ✧ randomly: 
-dogs, crunchy food, NECTARINES, cold winter, swimming, books, gren tea, SORTING X ANALYSING, SQUARE FORMS, stuffies, rain, science fiction, psychology
+dogs, crunchy food, NECTARINES, cold winter, swimming, books, SORTING X ANALYSING, SQUARE FORMS, science fiction, psychology
 
 ✧ add me on steam! [click here](https://steamcommunity.com/profiles/76561199443770449/) 
 
