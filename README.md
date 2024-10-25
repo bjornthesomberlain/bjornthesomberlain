@@ -4,7 +4,7 @@
 
 ![tumblr_2d070e0de8a27f65e31897cfe0ecdeb0_3bdcffb1_1280](https://github.com/user-attachments/assets/49318721-3e61-4548-b1cc-07787425c602)
 
-!!! NOTE OF OCTOBER22. be aware of that currently im being in suicidal state. public chat off. i freely hide anybody who annoys me. dniu-closefriends.
+!!! 10/22/23 be aware of that currently im being in suicidal state. public chat off. i freely hide anybody who annoys me. dniu-closefriends.
 
  ✧    you can call  me bjørn / dashie or whatever you want 
  
