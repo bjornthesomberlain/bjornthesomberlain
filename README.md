@@ -4,15 +4,11 @@
 
 ![tumblr_2d070e0de8a27f65e31897cfe0ecdeb0_3bdcffb1_1280](https://github.com/user-attachments/assets/49318721-3e61-4548-b1cc-07787425c602)
 
-!!! 10/22/23 be aware of that currently im being in suicidal state. public chat off. i freely hide anybody who annoys me. dniu-closefriends.
-
  ✧    you can call  me bjørn / dashie or whatever you want 
  
 ✧ im a 18 yo artist, studying as professional chief n catering boss 
 
-✧ i almost got healed my mental health so please avoid any trauma/sexual themes when talking to me ! also id be grateful if you wont tell me anything about insects/parasites i still have an ocd 
-
-✧ im rlly sweet & friendly to pppl that share interests w me, so pls dont be afraid          to interact first 
+✧ im sweet & friendly to pppl that share interests w me, so pls dont be afraid          to interact first 
 
 ✧ im online almost all day 
 but 3 am - 12 pm on my timezone 
@@ -26,7 +22,7 @@ list of my fav things:![2323317_ca089](https://github.com/user-attachments/asset
 
 
 ✧ games n etc:
-postal, metal gear, silent hill metalocalypse, blood, doom, duke nukem, bayonetta, devil may cry, half-life, portal, dark souls, mouthwashing, max payne, httyd, minecraft, mlp, jjba, evangelion, witcher(games n books) , stalker, call of duty:bo, octodad, undertale, deltarune, faust, fight club, good omens
+postal, metal gear, silent hill metalocalypse, blood, doom, duke nukem, bayonetta, devil may cry, half-life, portal, dark souls, max payne, httyd, minecraft, mlp, jjba, evangelion, witcher(games n books) , stalker, call of duty:bo, octodad, undertale, deltarune, faust, fight club, good omens
 
 
 
