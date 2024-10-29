@@ -42,7 +42,7 @@ dogs, crunchy food, NECTARINES, cold winter, swimming, books, SORTING X ANALYSIN
 ✧ add me on steam! [click here](https://steamcommunity.com/profiles/76561199443770449/) 
 
 
-✧ sign my sp! [click here](https://bjornlarsen.straw.page) 
+✧ sign my sp! [click here](https://sacredessence.straw.page/) 
 
 ✧ sign my ata! [click here](https://bjorn.atabook.org/) 
 
