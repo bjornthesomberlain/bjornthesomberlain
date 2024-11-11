@@ -22,7 +22,7 @@ list of my fav things:![2323317_ca089](https://github.com/user-attachments/asset
 
 
 ✧ games n etc:
-postal, metal gear, silent hill metalocalypse, blood, doom, duke nukem, bayonetta, devil may cry, half-life, portal, dark souls, max payne, httyd, minecraft, mlp, jjba, evangelion, witcher(games n books) , stalker, call of duty:bo, octodad, undertale, deltarune, faust, fight club, good omens
+postal, detroit:bh, metal gear, silent hill metalocalypse, blood, doom, duke nukem, bayonetta, devil may cry, half-life, portal, dark souls, max payne, httyd, minecraft, mlp, jjba, evangelion, witcher(games n books) , stalker, call of duty:bo, octodad, undertale, deltarune, faust, fight club, good omens
 
 
 
