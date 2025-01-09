@@ -6,7 +6,8 @@
 
 ┌─
           note of 09/01/2025
-             hey buddies.  
+         
+   hey buddies.
    pt bored me and i have no reason to stay there. you can contact me in any case by using atabook or dm me on dc.
        best wishes, love yall. 
                                      ─┘    
