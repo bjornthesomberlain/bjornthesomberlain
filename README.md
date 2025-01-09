@@ -4,6 +4,15 @@
 
 ![tumblr_2d070e0de8a27f65e31897cfe0ecdeb0_3bdcffb1_1280](https://github.com/user-attachments/assets/49318721-3e61-4548-b1cc-07787425c602)
 
+┌─
+          note of 09/01/2025
+          
+             hey buddies.  
+   pt bored me and i have no reason to stay there. you can contact me in any case by using atabook or dm me on dc.
+       best wishes, love yall. 
+                                     ─┘    
+
+
  ✧    you can call  me bjørn / darien or whatever you want 
  
 ✧ im a 18 yo artist, studying as professional chief n catering boss 
