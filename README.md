@@ -10,7 +10,8 @@
    hey buddies.
    pt bored me and i have no reason to stay there. you can contact me in any case by using atabook or dm me on dc.
        best wishes, love yall. 
-                                                                             ─┘    
+
+                                                                            
 
 
  ✧    you can call  me bjørn / darien or whatever you want 
