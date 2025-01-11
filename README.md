@@ -8,7 +8,7 @@
           note of 09/01/2025
          
    hey buddies.
-   pt bored me and im not sure if i get back. you can contact me in any case by using atabook or dm me on dc.
+   pt bored me and im not sure if i ever get back. you can contact me in any case by using atabook or dm me on dc.
        best wishes, love yall. 
 
                                                                             
