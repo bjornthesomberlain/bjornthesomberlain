@@ -32,7 +32,7 @@ list of my fav things:![2323317_ca089](https://github.com/user-attachments/asset
 
 
 ✧ games n etc:
- stalker, metro, postal, metal gear, silent hill, metalocalypse, blood, doom, duke nukem, bayonetta, devil may cry, half-life, portal, dark souls, max payne, witcher(games n books), call of duty, octodad, undertale, deltarune, faust, fight club, good omens
+ stalker, hannibal, metro, postal, metal gear, silent hill, metalocalypse, blood, doom, duke nukem, bayonetta, devil may cry, half-life, portal, dark souls, max payne, witcher(games n books), call of duty, octodad, undertale, deltarune, faust, fight club, good omens
 
 
 
