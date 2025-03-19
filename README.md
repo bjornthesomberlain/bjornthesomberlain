@@ -32,11 +32,11 @@ list of my fav things:![2323317_ca089](https://github.com/user-attachments/asset
 
 
 ✧ games n etc:
- stalker, hannibal, metro, postal, metal gear, silent hill, metalocalypse, blood, doom, duke nukem, bayonetta, devil may cry, half-life, portal, dark souls, max payne, witcher(games n books), call of duty, octodad, undertale, deltarune, faust, fight club, good omens
+ stalker, hannibal, mafia, metro, hotline miami, postal, metal gear, silent hill, metalocalypse, blood, doom, duke nukem, bayonetta, devil may cry, half-life, portal, dark souls, max payne, witcher(games n books), call of duty, octodad, undertale, deltarune, faust, fight club, good omens, 
 
 
 
-✧ musix: david bowie ; iggy pop ; sting ; nazareth ; bon jovi ; joy division ; dead kennedys ; misfits ; sex pistols ; motorhead ; type o negative ; black flag ; candlemass ; placebo ; the smiths ; bee gees ; the doors ; queen ; the cure ; aria ; iron maiden ; purgen ; the smashing pumpkins ; nautilius pompilius ; korn ; marilyn manson ; electric light orchestra ; a-ha ; nightwish  ( only with tarja on vocal :/ ) ; within temptation ; dissection ; ancient ; darkthrone ; judas priest ; metalocalypce ost ;  sally face ost + sanitys fall ; portal ost ; asgaroth ; satyricon ; immortal ; catamenia ; vices abyss ; my dying bride ; vanhelga ; morbid ; windir ; belphegor ; archspire ; exodus ; obituary ; dead angel ; nargaroth ; desolate tapes ; burzum ; mütiilation ; fornicatus ; soulaflair ; garden of sadness ; ruined mind ; lifeharm ; black flag ; overkill ; wintersun ; children of bodom ; exodus ; dimmu borgir ; pantera ; sodom ; bathory ; manowar ; hateful tomorrow ; psychonaut 4 ; absu ; 13 winters ; plenka ; hypnosia ; untold grief ; silencer ; murderdolls ; venom ; horror of 59 ; blitzkid ; king and the jester ; frnkiero and the celebration ; neurotic outsiders ; molchat doma ; the glue ; rings of saturn ; garbage ; katatonia ; frank sinatra & nancy sinatra ; elvis presley ; diabarha ; dope stars inc. ; mareux ; and one
+✧ musix: david bowie ; iggy pop ; sting ; nazareth ; bon jovi ; joy division ; dead kennedys ; misfits ; sex pistols ; motorhead ; type o negative ; black flag ; candlemass ; placebo ; the smiths ; bee gees ; the doors ; queen ; the cure ; aria ; iron maiden ; purgen ; the smashing pumpkins ; nautilius pompilius ; korn ; marilyn manson ; electric light orchestra ; a-ha ; nightwish  ( only with tarja on vocal :/ ) ; within temptation ; dissection ; ancient ; darkthrone ; judas priest ; metalocalypce ost ;  sally face ost + sanitys fall ; portal ost ; asgaroth ; satyricon ; immortal ; catamenia ; vices abyss ; my dying bride ; vanhelga ; morbid ; windir ; belphegor ; archspire ; exodus ; obituary ; dead angel ; nargaroth ; desolate tapes ; burzum ; mütiilation ; fornicatus ; soulaflair ; garden of sadness ; ruined mind ; lifeharm ; black flag ; overkill ; wintersun ; children of bodom ; exodus ; dimmu borgir ; pantera ; sodom ; bathory ; manowar ; hateful tomorrow ; psychonaut 4 ; absu ; 13 winters ; plenka ; hypnosia ; untold grief ; silencer ; murderdolls ; venom ; horror of 59 ; blitzkid ; king and the jester ; frnkiero and the celebration ; neurotic outsiders ; molchat doma ; the glue ; rings of saturn ; garbage ; katatonia ; frank sinatra & nancy sinatra ; elvis presley ; diabarha ; dope stars inc. ; mareux ; and one ; combichrist
  
 
 but lately i got used to listen to the one song for weeks/months (sometimes u can see it in my status) 
@@ -47,7 +47,7 @@ but lately i got used to listen to the one song for weeks/months (sometimes u ca
 
 
 ✧ randomly: 
-dogs, crunchy food, NECTARINES, cold winter, swimming, books, SORTING X ANALYSING, SQUARE FORMS, science fiction, psychology
+dogs, crunchy food, NECTARINES, cold winter, swimming, SORTING X ANALYSING, SQUARE FORMS, science fiction, philosophy
 
 ✧ add me on steam! [click here](https://steamcommunity.com/profiles/76561199443770449/) 
 
