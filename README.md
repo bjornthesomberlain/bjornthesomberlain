@@ -18,7 +18,7 @@
  
 ✧ im a 18 yo artist, studying as professional chief n  head of production
 
-✧ im sweet & friendly to pppl that share interests w me, so pls dont be afraid          to interact first 
+✧ im friendly to pppl that share interests w me, so pls dont be afraid          to interact first
 
 ✧ im online almost all day 
 but 3 am - 12 pm on my timezone 
@@ -36,10 +36,8 @@ list of my fav things:![2323317_ca089](https://github.com/user-attachments/asset
 
 
 
-✧ musix: david bowie ; iggy pop ; sting ; nazareth ; bon jovi ; joy division ; dead kennedys ; misfits ; sex pistols ; motorhead ; type o negative ; black flag ; candlemass ; placebo ; the smiths ; bee gees ; the doors ; queen ; the cure ; aria ; iron maiden ; purgen ; the smashing pumpkins ; nautilius pompilius ; korn ; marilyn manson ; electric light orchestra ; a-ha ; nightwish  ( only with tarja on vocal :/ ) ; within temptation ; dissection ; ancient ; darkthrone ; judas priest ; metalocalypce ost ;  sally face ost + sanitys fall ; portal ost ; asgaroth ; satyricon ; immortal ; catamenia ; vices abyss ; my dying bride ; vanhelga ; morbid ; windir ; belphegor ; archspire ; exodus ; obituary ; dead angel ; nargaroth ; desolate tapes ; burzum ; mütiilation ; fornicatus ; soulaflair ; garden of sadness ; ruined mind ; lifeharm ; black flag ; overkill ; wintersun ; children of bodom ; exodus ; dimmu borgir ; pantera ; sodom ; bathory ; manowar ; hateful tomorrow ; psychonaut 4 ; absu ; 13 winters ; plenka ; hypnosia ; untold grief ; silencer ; murderdolls ; venom ; horror of 59 ; blitzkid ; king and the jester ; frnkiero and the celebration ; neurotic outsiders ; molchat doma ; the glue ; rings of saturn ; garbage ; katatonia ; frank sinatra & nancy sinatra ; elvis presley ; diabarha ; dope stars inc. ; mareux ; and one ; combichrist
+✧ musix: david bowie ; iggy pop ; sting ; nazareth ; bon jovi ; joy division ; dead kennedys ; misfits ; sex pistols ; motorhead ; type o negative ; black flag ; candlemass ; placebo ; the smiths ; bee gees ; the doors ; queen ; the cure ; aria ; iron maiden ; purgen ; the smashing pumpkins ; nautilius pompilius ; korn ; marilyn manson ; electric light orchestra ; a-ha ; nightwish  ( only with tarja on vocal :/ ) ; within temptation ; dissection ; ancient ; darkthrone ; judas priest ; metalocalypce ost ;  sally face ost + sanitys fall ; portal ost ; asgaroth ; satyricon ; immortal ; catamenia ; vices abyss ; my dying bride ; vanhelga ; morbid ; windir ; belphegor ; archspire ; exodus ; obituary ; dead angel ; nargaroth ; desolate tapes ; burzum ; mütiilation ; fornicatus ; soulaflair ; garden of sadness ; ruined mind ; lifeharm ; black flag ; overkill ; wintersun ; children of bodom ; exodus ; dimmu borgir ; pantera ; sodom ; bathory ; manowar ; hateful tomorrow ; psychonaut 4 ; absu ; 13 winters ; plenka ; hypnosia ; untold grief ; silencer ; murderdolls ; venom ; horror of 59 ; blitzkid ; king and the jester ; frnkiero and the celebration ; neurotic outsiders ; molchat doma ; the glue ; rings of saturn ; garbage ; katatonia ; frank sinatra & nancy sinatra ; elvis presley ; diabarha ; dope stars inc. ; mareux ; and one ; combichrist ; aquarium : DDT ; splin ; lumen
  
-
-but lately i got used to listen to the one song for weeks/months (sometimes u can see it in my status) 
 
 ✧ hobbies: reading, modeling, art, handmade, electroguitar, cd-disks collecting, criminal  x incidents chronicles, dossiers, meditation, volunteering, gyming
 
