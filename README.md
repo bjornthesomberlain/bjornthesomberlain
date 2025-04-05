@@ -16,7 +16,7 @@
 
  ✧    you can call  me bjørn / darien or whatever you want 
  
-✧ im a 18 yo artist, studying as professional chief n catering boss 
+✧ im a 18 yo artist, studying as professional chief n  head of production
 
 ✧ im sweet & friendly to pppl that share interests w me, so pls dont be afraid          to interact first 
 
