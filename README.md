@@ -44,8 +44,8 @@ list of my fav things:![2323317_ca089](https://github.com/user-attachments/asset
 ![2514723_5c25d](https://github.com/user-attachments/assets/e83951a2-9636-4897-8f53-bed5a769f2d6)  ![1046355_5d1ac](https://github.com/user-attachments/assets/3f6f0ec0-0b52-4d51-96d6-c91a25e8545b)
 
 
-✧ randomly: 
-dogs, crunchy food, NECTARINES, cold winter, swimming, SORTING X ANALYSING, SQUARE FORMS, science fiction, philosophy
+✧ randomly:
+mango...i lov..e.. man..go....
 
 ✧ add me on steam! [click here](https://steamcommunity.com/profiles/76561199443770449/) 
 
