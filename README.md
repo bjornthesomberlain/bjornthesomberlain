@@ -9,7 +9,7 @@
                                                                          
  ✧    you can call  me bjørn / darien or whatever you want 
  
-✧ im a 18 yo artist, studying in painting 
+✧ im a 18 yo child, studying painting n searching for my niche in digital, so for now i just draw anything!
 
 ✧ im friendly to pppl that share interests w me, so pls dont be afraid          to interact first
 
