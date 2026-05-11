@@ -39,8 +39,6 @@ list of my fav things:![2323317_ca089](https://github.com/user-attachments/asset
 ✧ randomly:
 mango...i lov..e.. man..go....
 
-✧ follow my art channel on telegram @ssaccrredd
-
 ✧ sign my sp! [click here](https://sacredessence.straw.page/) 
 
 ✧ sign my ata! [click here](https://bjorn.atabook.org/) 
