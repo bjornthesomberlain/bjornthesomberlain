@@ -7,7 +7,7 @@
 ┌─
          
                                                                          
- ✧    you can call  me bjørn / darien or whatever you want 
+ ✧    you can call  me bjørn / velimir or whatever you want 
  
 ✧ im 19 yo digital artist
 
